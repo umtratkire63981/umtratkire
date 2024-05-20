@@ -1,1 +1,1 @@
-Taylor Swift's transition from country to pop music was solidified with the release of her album "1989" in 2014, featuring chart-toppers like "Shake It Off" and "Blank Space."
+Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
