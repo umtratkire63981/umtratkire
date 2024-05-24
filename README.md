@@ -1,1 +1,1 @@
-Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
+Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
