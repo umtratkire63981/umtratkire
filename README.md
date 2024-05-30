@@ -1,1 +1,1 @@
-Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
+*NSYNC's "No Strings Attached" spawned hit singles like "Bye Bye Bye" and "It's Gonna Be Me," solidifying their status as pop superstars.
