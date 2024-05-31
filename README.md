@@ -1,1 +1,1 @@
-*NSYNC's "No Strings Attached" spawned hit singles like "Bye Bye Bye" and "It's Gonna Be Me," solidifying their status as pop superstars.
+The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
