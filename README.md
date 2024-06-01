@@ -1,1 +1,1 @@
-The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
+Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
