@@ -1,1 +1,1 @@
-Cardi B's debut single "Bodak Yellow" (2017) made history by becoming the first solo female rap song to top the Billboard Hot 100 chart since Lauryn Hill in 1998.
+The 1990s witnessed the golden age of hip hop, with artists like Tupac Shakur, The Notorious B.I.G., and Wu-Tang Clan dominating the charts and shaping the culture.
