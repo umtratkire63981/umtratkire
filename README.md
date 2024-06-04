@@ -1,1 +1,1 @@
-The 1990s witnessed the golden age of hip hop, with artists like Tupac Shakur, The Notorious B.I.G., and Wu-Tang Clan dominating the charts and shaping the culture.
+MTV played a central role in music culture in the 1990s, shaping trends, launching careers, and influencing fashion and youth culture.
