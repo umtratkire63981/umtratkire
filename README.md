@@ -1,1 +1,1 @@
-MTV played a central role in music culture in the 1990s, shaping trends, launching careers, and influencing fashion and youth culture.
+Despite the challenges posed by piracy, the music industry saw the emergence of legal digital music platforms like Apple's iTunes Store, which launched in 2001.
