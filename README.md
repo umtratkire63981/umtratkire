@@ -1,1 +1,1 @@
-The soundtrack for the film "O Brother, Where Art Thou?" was released in 2000 and became a surprise success, winning the Grammy Award for Album of the Year in 2002.
+Latin music experienced a surge in popularity in the 1990s, with artists like Ricky Martin, Shakira, and Selena crossing over to the mainstream market.
