@@ -1,1 +1,1 @@
-Latin music experienced a surge in popularity in the 1990s, with artists like Ricky Martin, Shakira, and Selena crossing over to the mainstream market.
+The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
