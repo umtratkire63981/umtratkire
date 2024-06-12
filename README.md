@@ -1,1 +1,1 @@
-The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
+"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
