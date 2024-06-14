@@ -1,1 +1,1 @@
-Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
+The rise of grunge fashion, characterized by flannel shirts, ripped jeans, and combat boots, reflected the anti-establishment ethos of the music genre.
