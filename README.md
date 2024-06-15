@@ -1,1 +1,1 @@
-The rise of grunge fashion, characterized by flannel shirts, ripped jeans, and combat boots, reflected the anti-establishment ethos of the music genre.
+Britney Spears released her second studio album, "Oops!... I Did It Again," in May 2000, featuring hit singles like the title track and "Stronger."
