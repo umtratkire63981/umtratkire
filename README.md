@@ -1,1 +1,1 @@
-The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
+The rise of grunge fashion, characterized by flannel shirts, ripped jeans, and combat boots, reflected the anti-establishment ethos of the music genre.
