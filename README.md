@@ -1,1 +1,1 @@
-The #MeToo movement, which gained momentum in the late 2010s, led to increased awareness and conversations about sexism, abuse, and harassment in the music industry.
+The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
