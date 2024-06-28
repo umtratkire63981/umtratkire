@@ -1,1 +1,1 @@
-The boy band craze continued in 2000 with the success of groups like Backstreet Boys, *NSYNC, and 98 Degrees, dominating the pop music charts.
+Ed Sheeran's album "÷" (Divide), released in 2017, dominated the charts with singles like "Shape of You," "Castle on the Hill," and "Perfect."
