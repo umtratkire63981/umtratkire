@@ -1,1 +1,1 @@
-Ed Sheeran's album "÷" (Divide), released in 2017, dominated the charts with singles like "Shape of You," "Castle on the Hill," and "Perfect."
+MTV played a central role in music culture in the 1990s, shaping trends, launching careers, and influencing fashion and youth culture.
