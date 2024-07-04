@@ -1,1 +1,1 @@
-Mandy Moore's album "I Wanna Be with You" was released in 2000, featuring the title track and other singles that showcased her transition from teen pop to more mature themes.
+Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
