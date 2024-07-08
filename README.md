@@ -1,1 +1,1 @@
-Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
+MTV played a central role in music culture in the 1990s, shaping trends, launching careers, and influencing fashion and youth culture.
