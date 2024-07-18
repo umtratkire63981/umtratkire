@@ -1,1 +1,1 @@
-Alternative rock bands like Radiohead, Oasis, and Beck gained prominence in the 1990s, offering diverse sounds and pushing musical boundaries.
+The 1990s marked the globalization of music, with artists from around the world gaining international recognition and influencing cross-cultural exchange.
