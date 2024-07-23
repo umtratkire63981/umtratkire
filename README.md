@@ -1,1 +1,1 @@
-The rise of digital music piracy, facilitated by peer-to-peer file-sharing services like Napster, challenged the music industry's traditional business model in the early 2000s.
+Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
