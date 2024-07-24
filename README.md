@@ -1,1 +1,1 @@
-Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
+Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
